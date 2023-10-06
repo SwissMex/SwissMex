@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SwissMex the Sales & Distribution Guru with a global view and a knack for seamlessly integrating all generations
+- 👋 Hi, I’m @SwissMex the Sales & Distribution Guru with a global view & a knack for seamlessly integrating all generations
 - 👀 My passion lies in crafting winning sales strategies while bridging the generational gap to create cohesive experiences
 - 🌱 Currently, I'm leveraging my expertise to drive innovation and achieve remarkable results by connecting with every generation
 - 💞️ I'm open to collaborating on projects that blend the art of sales with the harmony of multi-generational integration
